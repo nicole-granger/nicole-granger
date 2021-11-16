@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nicole-granger
 - 👀 I’m interested in anime and books ✨
-- 🌱 I’m currently learning 7th grade (12 yrs old)
+- 🌱 I’m currently learning 8th grade (13 yrs old)
 - 💞️ I’m looking to have more friend oversea and explore other interesting cultures! ✨
 - 📫 You guys can contact with me by email or Pinterest: trinhthienngan@gmail.com & https://www.pinterest.com/trinhthienngan/_saved/ ✨
